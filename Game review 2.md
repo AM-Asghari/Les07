@@ -12,7 +12,7 @@
 
 * Wat hier zeker bij helpt, is dat de helden van Arise bijzonder sterk zijn uitgewerkt. Tuurlijk: ze bestaan weer uit exact dezelfde stereotypen die we al talloze keren hebben gezien. Maar de interacties tussen de personages zijn grappig, ontwapenend en soms zelfs verdomd schattig. De gehele cast is ditmaal ook erg degelijk ingesproken - zelfs in het Engels. Daarbij zijn hun achtergrondverhalen grotendeels geloofwaardig uitgewerkt, al zitten er wat gekke sprongen in. Zo gaat Law binnen één cutscene van woedende gestapo, bereid om zelfs z’n bloedeigen pa te verlinken, naar een vrolijk vaderskindje.
 
-![Alphen](ToA2.jpg)
+![Alphen](Toa2.jpg)
 
 * De plot, en daarmee de structuur, is een stuk meer gestroomlijnd dan voorheen. Tales of experimenteerde al eerder met een meer rechtlijnige structuur, maar Arise gaat nog een stapje verder. Er zijn hier vrijwel alleen kleinere (prachtig vormgegeven) gebieden met een flink aantal gangen. Uiteraard is er vooral later in het spel meer te verkennen, maar doorgaans volg je vrij letterlijk het gebaande pad. Zelfs het camerastandpunt is hierop afgestemd en zit ditmaal veel dichter op je personage. Het resultaat geeft wat minder bewegingsvrijheid, maar het houdt de vaart er wel lekker in.
   
