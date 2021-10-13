@@ -1,6 +1,6 @@
 # THUNDERDOGS REVIEW
 
-![Foto](feature_graphic)
+![Foto](feature_graphic.png)
 
 ## Gameplay
 
